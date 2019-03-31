@@ -1,16 +1,19 @@
 ---
-title: "Ireby Green Farm"
-date: 2016-05-08T13:09:13-06:00
+title: "Deli Ecosse"
+date: 2018-10-07T13:09:13-06:00
 ---
 
-[Ireby Green Farm](http://www.irebygreenfarm.co.uk/page_2982708.html)
+[Deli Ecosse](https://deliecosse.co.uk/)
 
-The night before we had been celebrating our friends 10 year engagement party. Yes that's right ten years!
+We took the campervan up to Scotland for a couple of days to go walking and running.
 
-To ride off the hangover we set off early and headed to Ireby in hunt of second breakfast. Our route is on [Strava](https://www.strava.com/activities/569559022).
+We stopped off in Callander to get breakfast before walking up [Ben Ledi](https://www.strava.com/activities/1849606370).
 
+<img src="/img/20180915_150324.jpg" width ="400">
 
-<img src="/img/122.jpg" width ="400">
+The cafe was quite small and very busy. The most interesting thing about this breakfast was that it came with a vegetable hash, which was good. However, the rest of the breakfsat was quite dissapointing. The mushrooms and tomatos were under cooked.
+
+<img src="/img/20180915_125032.jpg" width ="400">
 
 Rating:
 

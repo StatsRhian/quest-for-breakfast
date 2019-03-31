@@ -1,16 +1,18 @@
 ---
-title: "Ireby Green Farm"
-date: 2016-05-08T13:09:13-06:00
+title: "Auction Eats"
+date: 2019-03-30T13:09:13-06:00
 ---
 
-[Ireby Green Farm](http://www.irebygreenfarm.co.uk/page_2982708.html)
+[Auction Eats](https://auctioneats.co.uk/)
 
-The night before we had been celebrating our friends 10 year engagement party. Yes that's right ten years!
+One Saturday morning I decided to go [cycling around Catterall](https://www.strava.com/activities/2251590084) for two reasons. 
 
-To ride off the hangover we set off early and headed to Ireby in hunt of second breakfast. Our route is on [Strava](https://www.strava.com/activities/569559022).
+* To get some more cycling tiles around Beacon Fell
+* To try out a new cafe
 
+I was noyt dissapointed! I think this is one of the best breakfasts I've had so far. The eggs and mushrooms were perfectly cooked, and the hashbrown was crispy. For an extra £1 you could have unlimited filter coffee. And there was ASPARAGUS! Everything was obivously cooked freshly and tasted fantsatics. I can't wait to go back.
 
-<img src="/img/122.jpg" width ="400">
+<img src="/img/20190330_122733.jpg" width ="400">
 
 Rating:
 
