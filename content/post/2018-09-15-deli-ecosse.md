@@ -1,0 +1,16 @@
+---
+title: "Ireby Green Farm"
+date: 2016-05-08T13:09:13-06:00
+---
+
+[Ireby Green Farm](http://www.irebygreenfarm.co.uk/page_2982708.html)
+
+The night before we had been celebrating our friends 10 year engagement party. Yes that's right ten years!
+
+To ride off the hangover we set off early and headed to Ireby in hunt of second breakfast. Our route is on [Strava](https://www.strava.com/activities/569559022).
+
+
+<img src="/img/122.jpg" width ="400">
+
+Rating:
+
